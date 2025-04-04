@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mrbryanonoche
-- 👀 I’m interested in almost anything for great compensation 
-- 🌱 I’m currently learning github
-- 💞️ I’m looking to collaborate on almost anything 
+- 👀 I’m interested in new challenges 
+- 🌱
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me ... please text me at 346-291-0720
 
 <!---
